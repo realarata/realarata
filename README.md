@@ -6,7 +6,7 @@ My name is ara ex Web-Dev
 
 ## Current Goals
 
-⚡️ Quitted We Development To achieve something else :)
+⚡️ Quitted Web-Development To achieve something else :)
 
 
 ## 🔗 Links
